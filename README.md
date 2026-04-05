@@ -1,6 +1,6 @@
 ## Hi, ich bin Angelina 👋
 
-- 4. Semester Medieninformatik B.Sc. @ Hochschule RheinMain
+- Viertes Semester Medieninformatik B.Sc. @ Hochschule RheinMain
 - Werkstudentin Ideenmanagement @ KSB SE & Co. KGaA
 - Mannheim
 
